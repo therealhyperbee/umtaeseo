@@ -1,4 +1,4 @@
-- 👋 Hi, I’m TaeSeo Um
+- 👋 Hi, I’m TaeSeo Um! Please reach me at taeseoum11@gmail.com !!!
 - 👀 Created a new Github for more academic/professional purpose
 
 <!---
